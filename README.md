@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning github
 - 💞️ I’m looking to collaborate on semua kolaborasi dan para ahli
 - 📫 How to reach me lewat github saja
-- 😄 Pronouns: ...
+- 😄 Pronouns:tidak ada 🤔🤔
 - ⚡ Fun fact: tentang platform dan penghasilan 
 
 <!---
