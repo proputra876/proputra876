@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on semua kolaborasi dan para ahli
 - 📫 How to reach me lewat github saja
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: tentang platform dan penghasilan 
 
 <!---
 proputra876/proputra876 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
